@@ -1,4 +1,7 @@
+# 💫 Hi 👋, I'm Nisha Tiwari
+**A passionate ASIC/FPGA RTL Design || ASIC/FPGA Engineer **
 
+Email Me 👉 ✉️ **nishatiwarig4.25vlsi@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/nisha-tiwari-029582306) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:nishatiwarig4.25vlsi@gmail.com) 
 
